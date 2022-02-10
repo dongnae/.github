@@ -3,6 +3,6 @@
 
 ---
 
-[이 단체](https://github.com/dongnae)의 소유자는 2019년에 동래고등학교에 입학하여 2022년에 졸업(예정)한 [박찬솔](https://github.com/nnnlog)입니다.<br>
+[이 단체](https://github.com/dongnae)의 소유자는 2019년에 동래고등학교에 입학하여 2022년 2월에 졸업한 [박찬솔](https://github.com/nnnlog)입니다.<br>
 궁금한 점이 있으면 언제든지 텔레그램 [@nnnlog](https://t.me/nnnlog)로 연락주시기 바랍니다.<br><br>
 감사합니다.
